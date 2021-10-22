@@ -1,2 +1,0 @@
-# voorkantje
-creatief met haldol
